@@ -1,0 +1,1 @@
+# KazTechStudies-IT-services-website-N-MP-OK-II
